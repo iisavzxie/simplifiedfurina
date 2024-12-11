@@ -6,4 +6,5 @@
 ˚◞ ♡ " <i>I'm really not accustomed to using a Vision. Why don't <b>you</b> teach me?</i> " ⋆ .
 <br> <img src="https://files.catbox.moe/liwzm8.png" width=300>
 <p align="center">
-mama
+ᐢ..ᐢ <i>savana</i> , <b>cixija</b> <img src="https://i.postimg.cc/NyK9y9Vf/b105.gif" width=10> 3teen <img src="https://files.catbox.moe/1u0r0g.gif" width=10> she / they ◜◡◝
+<br> ✃ <imc src="https://i.postimg.cc/vZJWQZYv/Hello-IMG1721006650219.gif">
